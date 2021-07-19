@@ -5,7 +5,7 @@
 * **Email**: [artemrazmyslovich@gmail.com](mailto:artemrazmyslovich@gmail.com)
 * **LinkedIn**: [https://www.linkedin.com/in/artem-razmyslovich](https://www.linkedin.com/in/artem-razmyslovich)
 * **Telegram**: [https://t.me/imarazm](https://t.me/imarazm)
-* **Discord**: [https://t.me/imarazm](https://t.me/imarazm)
+* **Discord**: [https://discordapp.com/users/754730957004734494](https://discordapp.com/users/754730957004734494)
 
 
 ### PROFILE
